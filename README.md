@@ -1,1 +1,1 @@
-# ista-python-curso-2022
+JUAN CARLOS MATUTE UZHCA
